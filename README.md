@@ -12,7 +12,7 @@ Meu nome é bombaatomicadachina
 
 @im_not_666_bicht
 
-
+https://media1.tenor.com/m/i7llTDaTPtUAAAAC/naruto.gif
 
 
 
