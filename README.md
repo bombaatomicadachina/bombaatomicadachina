@@ -1,6 +1,6 @@
 ### Boas Vindas ao meu perfil 💙
 
-Meu nome é bombaatomicadachina
+Meu nome é luis  miguel
 
 -Estou estudando na Alura
 -Estou me desenvolvendo na linguagem JavaScript
